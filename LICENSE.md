@@ -1,4 +1,4 @@
-
+Enhance your IPVanish experience with ultra-secure IPVanish Extension | dynamic-IP + OpenVPN-support, the #1 extension. Includes dynamic-IP and OpenVPN-support for a safer and
 
 
 
